@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @biancaebanks
 - 👀 I’m interested in joining the world of Human Centered Artificial Intelligence.
 - 🌱 I’m in the process of applying to graduate school to pursue a degree in Human Centered Design.
-- 💞️ My end goal after a successful career in Human Centered AI is to go on to become a professor to pass on the knowledge and skills to the next generation.
+- 💞️ My end goal after a successful career in Human Centered AI, is to become a professor.
 - 📫 You can contact me via email at bianca.ebanks16@gmail.com
